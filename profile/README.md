@@ -1,3 +1,3 @@
 # Plfanzen
 
-This GitHub organization is managed by Team Geramy 2025.
+The best CFT team in existence.
